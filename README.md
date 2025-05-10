@@ -33,4 +33,6 @@ Visiting student at UC Berkeley in 2025 July to August.
 ## ✈️ Interests
 
 Tracelling, travelling, and travelling.
-🇯🇵 🇭🇰 🇺🇸 🇲🇾 🇸🇬 🇰🇷
+🇯🇵 🇭🇰 🇺🇸 🇲🇾 🇸🇬 🇰🇷 ... 
+
+for the upcoming year: 🇲🇽 🇵🇪 🇨🇦 🇫🇷 🇵🇱 🇺🇦 🇬🇧 🇹🇷 🇷🇺
