@@ -1,16 +1,36 @@
-## Hi there 👋
+## Hi there, I'm Eric
 
-<!--
-**EricChiu147/EricChiu147** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+A MIS/CS student from National Taiwan University.
 
-Here are some ideas to get you started:
+From Taiwan 🇹🇼
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Loves traveling but not digital nomad.
+
+## Projects
+
+Website for Next-gen Transportation Union: https://ngtu.org
+
+Website for NTU Concious Paper: https://cpaper.org
+
+## Organizations
+
+### Next-gen Transportation Union
+
+A Taiwan-based non-government organization aims to promote **transportation equity**, especially for children under 18.
+
+### NTU Concious Paper
+
+An NTU-based media club, where student journalists can changing the society by words.
+
+## Education
+
+Undergraduate student at National Taiwan University, dept. of Information Management.
+
+Visiting student at UC Berkeley in 2025 July to August.
+
+(expected) Exchange student at Middle East Technical University.
+
+## Interests
+
+Tracelling, travelling, and travelling.
+🇯🇵 🇭🇰 🇺🇸 🇲🇾 🇸🇬 🇰🇷
