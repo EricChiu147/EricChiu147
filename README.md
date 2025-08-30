@@ -26,15 +26,17 @@ An NTU-based media club, where student journalists can changing the society by w
 
 ## 📖 Education
 
-Undergraduate student at National Taiwan University, dept. of Information Management.
+2021 - 2024 Taipei Municipal Chien Kuo High School Class of Humanities and Social Sciences
 
-Visiting student at UC Berkeley in 2025 July to August.
+2025 - 2025 University of California, Berkeley Summer Visiting Student
 
-(expected) Exchange student at Middle East Technical University.
+2026 - 2026 Exchange student at Middle East Technical University
+
+2024 - 2028 Undergraduate student at National Taiwan University, dept. of Information Management
 
 ## ✈️ Interests
 
 Tracelling, travelling, and travelling.
-🇯🇵 🇭🇰 🇺🇸 🇲🇾 🇸🇬 🇰🇷 🇲🇽... 
+🇯🇵 🇭🇰 🇺🇸 🇯🇵 🇯🇵 🇲🇾 🇸🇬 🇯🇵 🇰🇷 🇲🇽 🇺🇸 🇯🇵 🇯🇵 ... 
 
-for the upcoming days till year-end: 🇨🇦 🇫🇷 🇵🇪 🇵🇱 🇺🇦 🇬🇧 🇹🇷 🇷🇺
+for the upcoming days till year-end: 🇫🇷 🇵🇪 🇵🇱 🇺🇦 🇬🇧 🇹🇷 🇷🇺
